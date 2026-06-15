@@ -1,2 +1,0 @@
-# everesthotel100
-HI
